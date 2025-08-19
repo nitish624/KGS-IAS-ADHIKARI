@@ -1,1 +1,0 @@
-# KGS-IAS-ADHIKARI
